@@ -1,1 +1,1 @@
-# AM-git-mk-acc
+2PT4 Pęczak Damian / Tworzenie konta GITHUB
